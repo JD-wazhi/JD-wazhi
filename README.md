@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me jaywazhi@gmail.com or 08170849908
-- 😄 Pronouns: him
+- 😄 Pronouns: :)
 - ⚡ Fun fact: not gonna take it easy on my haters
 
 <!---
